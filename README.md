@@ -73,7 +73,7 @@ I love building **web applications**, learning **emerging technologies**, and co
 ## 📫 Contact Me
 - ✉️ Email: richelalem12@gmail.com  
 - 🔗 LinkedIn:  <a href="https://www.linkedin.com/in/rahel-melaku">Rahel Melaku</a>
-- 🌐 Portfolio: [Add your portfolio link here](#)
+- 🌐 Portfolio: [comeing soon...I droop here](#)
 
 ---
 
